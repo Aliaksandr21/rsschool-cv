@@ -1,1 +1,1 @@
-https://Aliaksandr21.github.io/rsschool-cv/cv
+[piska](https://Aliaksandr21.github.io/rsschool-cv/cv)
